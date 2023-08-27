@@ -14,12 +14,13 @@ who the hell is Sawrams?
 
 instructions unclear - dick stuck in toaster?? call eversiege today!!1!
 
+C# is a W language. Honestly everyone should migrate to C#, it is the superior OOP language. Migrate to C# [today](https://dotnet.microsoft.com/en-us/)
 I sure am a person.
 Not just any person.
 A mental Ukrainian.
 
 > _sawrams has been here_
->
+> Gammer0909 has been here :]
 > Certified Coopydood lover
 <!-- This bio was infected by Coopydood -->
 
